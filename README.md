@@ -1,0 +1,1 @@
+# automation-of-mobile-shop
